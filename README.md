@@ -1,4 +1,4 @@
-# [My-Greatest-Fear][https://www.youtube.com/watch?v=xvFZjo5PgG0]
+# [My-Greatest-Fear](https://www.youtube.com/watch?v=xvFZjo5PgG0)
 
 my geatest fear is being ricked rolled by someone
 
@@ -10,4 +10,4 @@ it's to the point that I can't look at Rick Astley whith out thinking of the son
 
 just look at him
 
-https://media.tenor.com/x8v1oNUOmg4AAAAd/rickroll-roll.gif
+![](https://media.tenor.com/x8v1oNUOmg4AAAAd/rickroll-roll.gif)
